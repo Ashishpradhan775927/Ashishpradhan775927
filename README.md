@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Ashishpradhan775927
 - 👀 I’m interested in Coding and Hacking
-- 🌱 I’m currently learning to have you
-- 💞️ I’m looking to collaborate on you
+- 🌱 I’m currently learning to inspire you
+- 💞️ I’m looking to collaborate with you
 - 📫 How to reach me ashishpradhan775927@gmail.com and ashishpradhan274474@gmail.com
 - 😄 Pronouns: no
 - ⚡ Fun fact: Idon't no you.
